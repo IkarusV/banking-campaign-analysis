@@ -8,6 +8,14 @@ In our work we focus on:
 - campaigns in English, found on the webpages of the banks
 - target audience: youth and individuals
 
+<img width="1994" height="1174" alt="image" src="https://github.com/user-attachments/assets/d625f83c-434e-412f-936a-19250ce985f5" />
+
+
+<img width="1190" height="834" alt="image" src="https://github.com/user-attachments/assets/b6e6e1f5-edbe-435e-8f92-8afb3bce0b80" />
+
+
+<img width="2709" height="1227" alt="image" src="https://github.com/user-attachments/assets/75c61fe2-5867-4e21-ab7d-063d58bb7930" />
+
 
 
 ## 🎯 Core objectives & methodology 
